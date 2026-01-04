@@ -1,5 +1,5 @@
 👋 Hi, I’m Sonu Verma
-🎓 B.Tech, 3rd Year IT Student at Delhi Technological University
+🎓 B.Tech, 4th Year IT Student at Delhi Technological University
 🌟 Passionate about Technology, Development, and Problem Solving
 💼 Aspiring Software Engineer | Tech Enthusiast
 
